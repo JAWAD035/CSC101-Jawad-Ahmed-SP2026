@@ -1,2 +1,0 @@
-# CSC101-Jawad-Ahmed-SP2026
-Jawad Ahmed SP26-ELC-035 ELC-1A.
